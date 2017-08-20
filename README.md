@@ -1,3 +1,4 @@
+## How to Effectively Save Money on Jewelry Purchases
 Jewelry is an important aspect of our daily fashion (and also a means of showing class and prestige). However, there are many ways through which people look to dupe buyers, especially since everyone knows that jewelry costs quite a lot. If you’re looking to save money and still get good jewelry, these tips will help you out.
 
 ## Avoid the usual chain stores
